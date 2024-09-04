@@ -1,5 +1,3 @@
-## Hi there 👋
-
 # 💫 About Me:
 ⚡ Fun fact: downloading all the information from the internet today would take 181 million years.
 
